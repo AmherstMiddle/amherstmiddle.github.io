@@ -1,0 +1,2 @@
+# amherstmiddle.github.io
+AMS!
